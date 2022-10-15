@@ -1,2 +1,2 @@
-# Ganjubaz221.github.io
+# Ganjubaz221
 Мой первый опубликованный сайт
